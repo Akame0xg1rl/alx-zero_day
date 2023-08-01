@@ -1,1 +1,1 @@
- hello i'm Korenoma 
+KOMI  hello i'm Korenoma 
